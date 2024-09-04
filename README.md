@@ -3,8 +3,8 @@
 Eu sou <strong>Ian Lucas</strong>, <strong>E tenho 20 anos </strong> 👨🏻‍💻 
 
 - 🚀 Atualmente estou aprendendo: <strong>No momento estou no primeiro periodo de ADS</strong> 
-- 💬 Pergunte-me sobre: <strong>Jogar e Tocar Instrumentos Musicais</strong>
-- 📣 Nós podemos falar em: <strong>Português e Inglês</strong>
+- 💬 Pergunte-me sobre: <strong>Progamação</strong>
+- 📣 Nós podemos falar em: <strong></strong>
 
 <div align="center">
 
