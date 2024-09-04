@@ -1,4 +1,4 @@
-# [Seu nome] <img src="https://www.google.com/imgres?q=gif%20ziggs&imgurl=https%3A%2F%2Fmedia.tenor.com%2FCzsxWMHR5nAAAAAM%2Fmichelly-ziggs.gif&imgrefurl=https%3A%2F%2Ftenor.com%2Fview%2Fziggs-ziggs-league-of-legends-zigmund-explosion-cinematic-gif-24641591&docid=OV_CtcKh5TbdfM&tbnid=G27Qk__As_mGxM&vet=12ahUKEwiu6f6gnamIAxUKrZUCHScjOJkQM3oECBgQAA..i&w=220&h=302&hcb=2&ved=2ahUKEwiu6f6gnamIAxUKrZUCHScjOJkQM3oECBgQAA" width="30px">
+# [Seu nome] <img src="https://media.tenor.com/CzsxWMHR5nAAAAAM/michelly-ziggs.gif" width="30px">
 
 Eu sou <strong>Seu Nome</strong>, <strong>Faça uma breve apresentação aqui</strong> 👨🏻‍💻 
 
