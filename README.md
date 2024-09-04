@@ -1,4 +1,4 @@
-# [Seu nome] <img src="https://media.tenor.com/CzsxWMHR5nAAAAAM/michelly-ziggs.gif" width="30px">
+# [Seu nome] <img src="https://media.tenor.com/CzsxWMHR5nAAAAAM/michelly-ziggs.gif" width="500px">
 
 Eu sou <strong>Seu Nome</strong>, <strong>Faça uma breve apresentação aqui</strong> 👨🏻‍💻 
 
