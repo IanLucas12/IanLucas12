@@ -1,4 +1,4 @@
-# [Seu nome] <img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fcarlinhos-dalva-cleide-talita-matagal-gif-23456882&psig=AOvVaw0wf3QsPwArZG3WpdJSPTtv&ust=1725536959559000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCPDW8aCcqYgDFQAAAAAdAAAAABAE" width="30px">
+# [Seu nome] <img src="hhttps://www.google.com/imgres?q=luffy%20gif&imgurl=https%3A%2F%2Fi.pinimg.com%2Foriginals%2F50%2Fc5%2Ff1%2F50c5f1847013012ee0f25f67fdddb8d9.gif&imgrefurl=https%3A%2F%2Fbr.pinterest.com%2Fpin%2F559290847480276728%2F&docid=KDYxs1wCa1wv2M&tbnid=uyMDOPHOb50nSM&vet=12ahUKEwjh6bPVnKmIAxWZq5UCHQVdBqQQM3oECBkQAA..i&w=498&h=278&hcb=2&ved=2ahUKEwjh6bPVnKmIAxWZq5UCHQVdBqQQM3oECBkQAA" width="30px">
 
 Eu sou <strong>Seu Nome</strong>, <strong>Faça uma breve apresentação aqui</strong> 👨🏻‍💻 
 
