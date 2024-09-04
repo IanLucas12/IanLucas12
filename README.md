@@ -1,4 +1,4 @@
-# [Seu nome] <img src="https://www.google.com/imgres?q=luffy%20gif&imgurl=https%3A%2F%2Fi.pinimg.com%2Foriginals%2F50%2Fc5%2Ff1%2F50c5f1847013012ee0f25f67fdddb8d9.gif&imgrefurl=https%3A%2F%2Fbr.pinterest.com%2Fpin%2F559290847480276728%2F&docid=KDYxs1wCa1wv2M&tbnid=uyMDOPHOb50nSM&vet=12ahUKEwjh6bPVnKmIAxWZq5UCHQVdBqQQM3oECBkQAA..i&w=498&h=278&hcb=2&ved=2ahUKEwjh6bPVnKmIAxWZq5UCHQVdBqQQM3oECBkQAA">
+# [Seu nome] <img src="https://www.google.com/imgres?q=gif%20ziggs&imgurl=https%3A%2F%2Fmedia.tenor.com%2FCzsxWMHR5nAAAAAM%2Fmichelly-ziggs.gif&imgrefurl=https%3A%2F%2Ftenor.com%2Fview%2Fziggs-ziggs-league-of-legends-zigmund-explosion-cinematic-gif-24641591&docid=OV_CtcKh5TbdfM&tbnid=G27Qk__As_mGxM&vet=12ahUKEwiu6f6gnamIAxUKrZUCHScjOJkQM3oECBgQAA..i&w=220&h=302&hcb=2&ved=2ahUKEwiu6f6gnamIAxUKrZUCHScjOJkQM3oECBgQAA" width="30px">
 
 Eu sou <strong>Seu Nome</strong>, <strong>Faça uma breve apresentação aqui</strong> 👨🏻‍💻 
 
