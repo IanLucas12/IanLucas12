@@ -1,4 +1,4 @@
-# [Seu nome] <img src="https://media.tenor.com/CzsxWMHR5nAAAAAM/michelly-ziggs.gif" width="50px">
+# [Ian Lucas] <img src="https://media.tenor.com/CzsxWMHR5nAAAAAM/michelly-ziggs.gif" width="50px">
 
 Eu sou <strong>Ian Lucas</strong>, <strong>E tenho 20 anos </strong> 👨🏻‍💻 
 
