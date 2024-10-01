@@ -1,6 +1,6 @@
 # [Ian Lucas] <img src="https://media.tenor.com/CzsxWMHR5nAAAAAM/michelly-ziggs.gif" width="50px">
 
-Eu sou <strong>Ian Lucas</strong>, <strong>E tenho 20 anos </strong> 👨🏻‍💻 
+Eu sou <strong>Ian Lucas Ferreira da Silva</strong>, <strong>E tenho 20 anos </strong> 👨🏻‍💻 
 
 - 🚀 Atualmente estou aprendendo: <strong>No momento estou no primeiro periodo de ADS</strong> 
 - 💬 Pergunte-me sobre: <strong>Progamação</strong>
