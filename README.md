@@ -4,7 +4,7 @@ Eu sou <strong>Ian Lucas Ferreira da Silva</strong>, <strong>E tenho 20 anos </s
 
 - 🚀 Atualmente estou: <strong>No momento estou no segundo Periodo de ADS em Senac-PE</strong> 
 - 💬 Pergunte-me sobre: <strong>Progamação</strong>
-- 📣 Nós podemos falar em: <strong></strong>
+
 
 <div align="center">
 
